@@ -5,4 +5,5 @@ Meu nome é Larissa Lima
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
 :Você pode entrar em contato comigo 📫
+
 larilina07@gmail.com
